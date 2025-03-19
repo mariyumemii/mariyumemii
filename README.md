@@ -1,3 +1,12 @@
+<h2>𖦁 ׂ  ｍａｒｉ ៵ ࣪ ִֶָ ⋆</h2>
+<p>«──────« ⋅ʚ🍓ɞ⋅ » ──────»</p>
+<p>"I wanna go home! I don't like this party!"</p>
+<p>ೃ⁀➷ age; 7teen</p>
+<p>♡digital artist ₊˚ 💌・₊✧❝ theyノany ❞</p>
+<br>
+<p>𓆩. 🌷 .𓆪socials ✧ ;</p>
+<p>𖥦 ✧ ˚ ࿔ @mariyumemii on twt, ig, and tumblr!! · ˚ * ୨୧ ✧ ˚</p>
+<p></p>♡˗ˏ✎*ೃ˚ u can also txt me on discord! :; ૮꒰ ˶• ༝ •˶꒱ა ♡</p>
 
 
 <!---
