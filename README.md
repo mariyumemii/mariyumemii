@@ -6,7 +6,7 @@
 <br>
 <p>𓆩. 🌷 .𓆪socials ✧ ;</p>
 <p>𖥦 ✧ ˚ ࿔ @mariyumemii on twt, ig, and tumblr!! · ˚ * ୨୧ ✧ ˚</p>
-<p></p>♡˗ˏ✎*ೃ˚ u can also txt me on discord! :; ૮꒰ ˶• ༝ •˶꒱ა ♡</p>
+<p>♡˗ˏ✎*ೃ˚ u can also txt me on discord! :; ૮꒰ ˶• ༝ •˶꒱ა ♡</p>
 
 
 <!---
